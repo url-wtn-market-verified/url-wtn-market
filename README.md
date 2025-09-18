@@ -71,3 +71,5 @@ Bookmark the official market and check the forum for current mirrors if needed. 
 ---
 
 _This article is for informational purposes only. Always use darknet markets at your own risk and follow the law in your jurisdiction._
+
+Update:  18.09.2025
